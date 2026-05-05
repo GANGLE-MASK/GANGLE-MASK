@@ -1,3 +1,3 @@
-i need friends bro pls guys🙏
+wip ok
 
 [sign ata halilintar](https://muffinhead.atabook.org/)
