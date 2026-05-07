@@ -6,6 +6,6 @@
 
 <img width="1240" height="469" alt="Image" src="https://github.com/user-attachments/assets/2369ede0-96b4-4539-ada6-2f1b187e1624" />
 
-wip inn here ok
+[<img width="1240" height="184" alt="Image" src="https://github.com/user-attachments/assets/d4e0b915-427c-4353-b8b9-a54f544b440b" />](https://xennoway.straw.page)
 
 <img width="1216" height="1165" alt="Image" src="https://github.com/user-attachments/assets/1c894cd7-058e-4c6f-86b1-922d7d1f701e" />
